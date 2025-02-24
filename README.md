@@ -1,4 +1,2 @@
-# SampleWebPage
-Sample webpae creation
-HEY all juz two boys 
-exploring github
+HEY all✨ juz two boys ☺️☺️
+Exploring github✌️
